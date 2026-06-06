@@ -1,1 +1,1 @@
-# rbxrivals-pack
+# Roblox Rivals Pack by Ghosty
